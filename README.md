@@ -5,4 +5,4 @@
 - 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/david-dragoudakis-2593911b7/)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: tbd
-- 
+  
